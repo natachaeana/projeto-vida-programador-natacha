@@ -1,1 +1,0 @@
-# projeto-vida-programador-natacha
